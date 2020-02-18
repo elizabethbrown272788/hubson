@@ -13,12 +13,12 @@ There is nothing calm or relaxing in firing projectiles at targets. Believe us! 
 
  
 
-#####Throw the dice and fold them
+##### Throw the dice and fold them
  
 Dice are not just for casinos. This category gives you the opportunity to try your luck and test your mind by tossing and counting a few dice. The rules of each dice game may vary, but in any case, you will use math to add your points, check your score and keep abreast of events throughout the game. Addition is not the only operation you will do in these free math games. You will subtract, multiply, evaluate the results and, if you are really good in the world of mathematics, calculate the probability for each move. It all depends on what game you are playing. Nevertheless, these free games will open for you the widest range of mathematical problems. Don't really like to roll dice? It’s just perfect, because we have many other games where you will find yourself.
 
  
 
-#####Puzzles, memory games and everything from the world of mathematics
+##### Puzzles, memory games and everything from the world of mathematics
  
 Do you think that a card game does not have a place among these cool math games? Think about it: if you have six cards left to decide, how many pictures do you have left? Since each picture is part of a matching pair, then six divided by two is three. The same rule applies to our learning games, quizzes, and all kinds of games that you think have nothing to do with math. Very often you cannot understand that it is mathematics that is the basis of a game. Everyone is also invited to this category, because we have games for all ages and difficulty levels. We have math games for children, more sophisticated applications for adults and many other materials for each and everyone.
